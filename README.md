@@ -1,2 +1,2 @@
 # YOoooooOOOOOOOOOooooOOOOooOOooOOOooOOOoooooooOOOOOo :3  
-:3 herbatnik is my nickname (althought my nickname is herbatni-k, but only beacuse herbatnik was already used by someone :c) 
+We are still developing README, go do something more interesting than waiting ;__;
